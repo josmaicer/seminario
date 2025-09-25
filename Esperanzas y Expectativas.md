@@ -10,7 +10,7 @@ El que sirve, sirve. Quien no sirve no tiene valor.
 Amen. Y suerte. 
 
 
-Yaritza Bastardo Sosa - YBS
+Yaritza Bastardo Sosa - Yaritx-v
 Julio 01, 2008
 
 Mi esperanza:
