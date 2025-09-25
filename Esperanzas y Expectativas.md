@@ -17,4 +17,4 @@ Mi esperanza:
 Tener la sabiduria suficiente para afrontar los obstaculos 
 
 Mi expectativa:
-Poder superar mis limites y lograr cada cosa que me proponga, La disciplina Vencera a la inteligencia.
+Poder superar mis limites y lograr cada cosa que me proponga, La disciplina Vencera a la inteligencia...
