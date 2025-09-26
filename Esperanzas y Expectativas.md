@@ -17,4 +17,3 @@ Mi esperansa es aprender lo mas que pueda para integrarme al mundo laborar y ser
 
 Mi expectativa:
 Es entregar todo de mi parte para progresar al masximo niver de programacion que pueda y completar todas las tareas y mas que lo que me den mis instrutores. 
-
