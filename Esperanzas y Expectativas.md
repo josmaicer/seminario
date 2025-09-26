@@ -10,7 +10,6 @@ El que sirve, sirve. Quien no sirve no tiene valor.
 Amen. Y suerte. 
 
 
-
 Astrid Baez - astridG-creator
 Octubre 12, 2008
 
@@ -19,4 +18,15 @@ aprender a aprender.
 
 Mi expectiva: 
 Que el trabajo en equipo fluya bien. 
-Superar mis conocimientos de la mejor manera.
+Superar mis conocimientos de la mejor manera
+
+
+Yaritza Bastardo Sosa - Yaritx-v
+Julio 01, 2008
+
+Mi esperanza:
+Tener la sabiduria suficiente para afrontar los obstaculos 
+
+Mi expectativa:
+Poder superar mis limites y lograr cada cosa que me proponga, La disciplina Vencera a la inteligencia...
+
