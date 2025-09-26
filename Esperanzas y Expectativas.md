@@ -1,10 +1,9 @@
-Gustavo Tavares - mucholove
-Octubre 12, 1990
+Erick Aminadad Feliciano Gonzalez
+Marzo 03, 2008
 
 Mi esperanza:
-Que aprendan a actuar por el bien, ahora y siempre.
+Quedar vivo a final de año.
 
 Mi expectativa:
-Que se entreguen al 100%. Esta vida es para servir.
-El que sirve, sirve. Quien no sirve no tiene valor.
-Amen. Y suerte. 
+aprender y mejorar todos mis conocimiento y poder llegar lejos, y ayudar a mi equipo en todo <3
+
