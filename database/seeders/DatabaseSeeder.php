@@ -23,4 +23,4 @@ class DatabaseSeeder extends Seeder
 }
  
 // Esto es un comentario de una sola línea
-$nombre = "Astrid"; // También se puede poner al final de una instrucción
+$nombre = "AstridBaez"; // También se puede poner al final de una instrucción
