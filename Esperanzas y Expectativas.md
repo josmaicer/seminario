@@ -9,6 +9,8 @@ Que se entreguen al 100%. Esta vida es para servir.
 El que sirve, sirve. Quien no sirve no tiene valor.
 Amen. Y suerte. 
 
+
+
 Astrid Baez - astridG-creator
 Octubre 12, 2008
 
